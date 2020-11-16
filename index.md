@@ -1,5 +1,5 @@
-# Welcome to my blog
+# Welcome to my Pages
 
-I'm glad you are here. I plan to talk about ...
+Under construction... 
 
-## Me
+## Julien-Pier Gagnon
